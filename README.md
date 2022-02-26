@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KendineMert
+- 👀 Bazenleri adam sikerim
+- 🌱 Manga ve Çizgi Roman Okurum
+- 💞️ Sevgili yapmıyom
+- 📫 Bunu neden okuduğunu bilmiyom
